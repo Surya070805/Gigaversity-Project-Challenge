@@ -1,1 +1,0 @@
-# Gigaversity-Project-Challenge
